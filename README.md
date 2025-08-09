@@ -1,3 +1,3 @@
-**[CLICK HERE](https://uddateline12.github.io/EARTHLINK/rri.html)**
+**[CLICK HERE](https://listpower1.github.io/section/rri.html)**
 
 © 2025 EarthIink, LLC. All rights reserved.
